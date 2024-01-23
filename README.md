@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **Computer Science Engineering**
 
-- 📫 How to reach me **deepakkhokhawat24@gmail.com@gmail.com**
+- 📫 How to reach me **deepakkhokhawat24@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
